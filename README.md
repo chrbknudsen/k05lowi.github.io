@@ -12,4 +12,9 @@ start
 " target="_blank"><img src="http://img.youtube.com/vi/dDKbdiUy4n8/0.jpg"
 alt="The Last Leg UKIP" width="240" height="180" border="10" /></a>
 
+
 Star Trek er bedre end Dr. Who.
+
+Today is a good day for someone else to die
+<a href="https://www.youtube.com/watch?v=ZdNqwDxEyiU">qaP'la!</a>
+
