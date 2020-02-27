@@ -11,3 +11,7 @@ start
 <a href="http://www.youtube.com/watch?feature=player_embedded&v=dDKbdiUy4n8
 " target="_blank"><img src="http://img.youtube.com/vi/dDKbdiUy4n8/0.jpg"
 alt="The Last Leg UKIP" width="240" height="180" border="10" /></a>
+
+
+Today is a good day for someone else to die
+<a href="https://www.youtube.com/watch?v=ZdNqwDxEyiU">qaP'la!</a>
